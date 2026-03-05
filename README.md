@@ -1,0 +1,2 @@
+# karena-kamu
+gk ada
